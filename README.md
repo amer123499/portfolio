@@ -63,13 +63,10 @@ cutting-edge technology to transform supply chain processes.
 
 ## 📂 Portfolio Artifacts
 
-The portfolio includes direct links to: - Supporting documents - Data
-analysis spreadsheets - Reports and presentations - Visual designs (via
-Google Drive and Canva)
-
-These artifacts showcase Mohammed's practical work and professional
-capabilities.
-
+https://drive.google.com/file/d/1yhHo_DkEujlz_di6FkdpVM0C04JzjHyS/view?usp=drivesdk
+https://drive.google.com/file/d/1FGT5Im0hJZYU6OX5eOhpKSiKcZb0F6PB/view?usp=drivesdk
+https://drive.google.com/file/d/1K81KxenIqyS7xkCUOMLvWJZDLG5e3U1y/view?usp=drivesdk
+https://drive.google.com/file/d/13O5U-Olp7Ifo3X-nZwXRLV6twbW6rv00/view?usp=drivesdk
 ## ✅ Conclusion
 
 This portfolio serves as a complete professional digital profile of
